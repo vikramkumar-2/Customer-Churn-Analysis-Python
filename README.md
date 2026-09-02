@@ -245,7 +245,7 @@ Based on the analysis, the following retention strategies are recommended:
 
 **Vikram Kumar**
 
-📧 connectwithvikramkumar@gmail.com &nbsp;|&nbsp; 🔗 [LinkedIn](https://linkedin.com/in/YOUR-LINKEDIN-USERNAME) &nbsp;|&nbsp; 💻 [GitHub](https://github.com/YOUR-GITHUB-USERNAME)
+📧 connectwithvikramkumar@gmail.com &nbsp;|&nbsp; 🔗 [LinkedIn](https://www.linkedin.com/in/vikramkumar4/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bhj7DuOmSQ%2FKXSyJCSN2bWA%3D%3D) &nbsp;|&nbsp; 💻 [GitHub](https://github.com/vikramkumar-2)
 
 <div align="center">
 
